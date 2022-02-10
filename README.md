@@ -30,7 +30,7 @@
 - Meetings that should have been a Slack message instead.
 - People talking about things they have no idea about.
 - People making concepts harder than what they are, just to sound smarter.
-- Talking to you directly and you playing with your phone or using Slack (big grin)
+- Talking to you directly and you playing with your phone or using Slack 😬
 
 ## How to best communicate with me
 
