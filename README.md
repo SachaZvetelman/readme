@@ -2,7 +2,7 @@
 
 - My Myers-Briggs type is [Assertive Protagonist - ENFJ-A](https://www.16personalities.com/enfj-personality). 
 - I'm very direct. I'll tell you when things are great, but I'll also let you know if there's something I'm not happy about.
-- I have high standards in general, and that includes work. That's why, as a manager, I will always try to find things we can improve on. No matter if you've been outstanding at work, there are always things to be better at. 
+- I have high standards in general, and that includes work. That's why, as a manager, I will always try to find things we can improve on. No matter if we've been outstanding at work, there are always things to be better at. 
 - I try to be in the best mood at all times. You'll hear me cracking a joke more often than not. A happy environment is a great environment to work in.
 - I'm proud of my ethical and moral values, which are nonnegotiable. I can spend a long time talking about them, and I'm more than happy to discuss in detail and give examples, but they can be summarised in:
   - Honesty.
